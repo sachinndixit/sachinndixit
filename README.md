@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **projects**
 
-- 📫 How to reach me **sachindixit233@gmail.com**
+- 📫 How to reach me **sachindixit2210@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
